@@ -1,0 +1,2 @@
+# Hope
+Goodness is here
